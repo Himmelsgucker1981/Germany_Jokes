@@ -16,3 +16,4 @@ We hope you enjoy our curated list of dad jokes!
 1. My wife told me to put the cat out. I didn’t know it was on fire! By the time I could act, it was incinerated, a harbinger of the path we all must take.
 1. I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
 2. Why did the German sausage feel self-conscious? Because it was afraid it would be the wurst.
+3. ![image](https://user-images.githubusercontent.com/127993211/225440184-9599760f-beb1-41e0-846a-0e0271ba12cb.png)
